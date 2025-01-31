@@ -28,13 +28,17 @@ El libro contiene ejemplos que pueden incluir:
 
 2️. Для испаноязычных, говорящих по-русски
 
-3️. Другие ситуации
+3. имена
+
+4. Другие ситуации
 
 1️. Para ruso hablantes hablando español
 
 2️. Para hispanohablantes hablando ruso
 
-3️. Otras situaciones
+3. Nombres
+
+4. Otras situaciones
 
 
 **Если у вас есть предложения или истории, свяжитесь с нами!**
@@ -63,8 +67,10 @@ las imagenes seran de la palabra en español
 
 папа en español puede significar, papá,papa y papa (father, potato and pope)
 
-![](https://pixahive.com/wp-content/uploads/2020/10/Father-and-child-147745-pixahive.jpg)
+<br>
+<br>
 
+![](https://pixahive.com/wp-content/uploads/2020/10/Father-and-child-147745-pixahive.jpg)
 
 _Father_
 
@@ -72,13 +78,19 @@ _отец_
 
 _Papa_
 
-![](https://ganar-ganar.mx/wp-content/uploads/2022/05/datos-de-la-papa.jpg)
+<br>
+<br>
 
-_potato_
+![potato](https://ganar-ganar.mx/wp-content/uploads/2022/05/datos-de-la-papa.jpg)
+
+_Potato_
 
 _картошка_
 
 _Papa_
+
+<br>
+<br>
 
 ![pope](https://www.americamagazine.org/sites/default/files/main_image/2023/10/18/20231018T0745-POPE-AUDIENCE-ZEAL-FOUCAULD-1767294.JPG.JPG)
 
@@ -87,6 +99,9 @@ _Pope_
 _Римский_
 
 _Papa_
+
+<br>
+<br>
 
 ![](https://latinflavors.wordpress.com/wp-content/uploads/2012/11/ajiaco-bogotano-ns0.jpg)
 
@@ -99,6 +114,8 @@ Si vas a un restaurante y  te dicen que hay papa ahi,  no te vas a comer a tu pa
 Если ты пойдёшь в ресторан и тебе скажут, что там есть "papa", не переживай – ты не съешь своего отца. 😊
 
 ---
+<br>
+<br>
 
 ## Ojuela
 
@@ -106,9 +123,11 @@ Si vas a un restaurante y  te dicen que hay papa ahi,  no te vas a comer a tu pa
 
 Эта еда называется "ojuela", и на испанском это не ругательство.
 
-Esta comida se llama ojuela, y en español no es una groseria
+Esta comida se llama ojuela, y en español no es una groseria, En ruso se confunde facilmente con una groserial
 
 ---
+<br>
+<br>
 
 ## Huesos
 
@@ -118,27 +137,107 @@ Esta comida se llama ojuela, y en español no es una groseria
 
 **"Huesos"** в испанском означает кости — твердые части, которые составляют скелет позвоночных животных. Это костные структуры, которые обеспечивают поддержку и защиту внутренних органов ... "Huesos" — это не "сукин сын". в испанском
 
+---
+<br>
+<br>
 
+## Uvas
+
+![](https://s.libertaddigital.com/2016/03/15/1920/1080/fit/Sima-de-los-Huesos-7.jpg)
+
+**Uvas** — это фрукт на испанском языке, который произносится так, как вы.
+
+**Uvas** es una fruta en español, que se pronuncia donde usted "У вас" en ruso  
+
+---
+
+<br>
+<br>
+
+## Huevo
+
+![](https://cadenaser00.epimg.net/ser/imagenes/2019/02/05/gente/1549348183_033142_1549348356_noticia_normal_recorte1.jpg)
+
+**Huevo** es un alimento que proviene de ciertos animales, como aves (gallinas, patos) y algunos reptiles. Es una fuente de proteína y nutrientes, y generalmente se consume cocido, frito o en diferentes recetas.
+
+En ruso significa mierda
+
+**Huevo** — это продукт питания, который получают от некоторых животных, таких как птицы (курицы, утки) и некоторые рептилии. Яйцо является источником белка и питательных веществ, и его обычно употребляют в вареном, жареном виде или в различных рецептах.
+
+На русском это значит "хуево".
+
+---
+
+<br>
+<br>
+
+## Tienda de Mascotas, no Moscotas
+
+
+![](https://ciudadevita.info/wp-content/uploads/2020/03/petsdany01.jpg)
+
+
+Вы, как читатель русского языка, можете легко перепутать "маскоты" с "moscatas". "moscatas" на испанском означают большие мухи.
+
+Usted como lector de ruso podra confundir mascotas con moscatas facilmente , moscatas quiere decir en español Moscas grandes
+
+---
+
+## Для испаноязычных, говорящих по-русскиs
+
+## Para hispanohablantes hablando ruso
+
+
+Изображения будут словом на испанском.
+
+las imagenes seran de la palabra en español
+
+---
+
+<br>
+<br>
+
+## Puede ser
+
+## Может  быт
+
+Когда вы говорите по-русски, убедитесь, что не путаете "ы" и "и", потому что это может кардинально изменить значение предложения, а вы ведь хотите быть мирным, правда?
+
+Cuando hable en ruso asegurese de no confundir "ы" y "и" puede cambiar el significado de la oracion drasticamente, y usted quiere ser pacifico cierto?
+
+**Может  быт**-**puede ser**
+
+**Может  бит**-**puedo golpear**
+
+---
+
+<br>
+<br>
+
+## Книга y нига
+
+## Libro y nigga
+
+![](https://external-content.duckduckgo.com/iu/?u=http%3A%2F%2Fwww.comunidadbaratz.com%2Fwp-content%2Fuploads%2FInstrucciones-a-tener-en-cuenta-sobre-como-se-abre-un-libro-nuevo.jpg&f=1&nofb=1&ipt=a53fad474a309a877d3fa0244cefec6e87d3a69c36d6f5c00688dbe6a98362fb&ipo=images)
+
+Это две разные вещи, но когда я спрашивал, где книга, я не спрашивал о нига.
+
+Son 2 cosas diferentes, pero cuando pregunte donde esta el libro no pregunte por el nigga
 
 Mi nieto
 Su bota
 Sasisque y sisque
 Automat y aftoyomat
 Bliat y vlad
-Huevo
 Galina y gallin
 Barbara y varvara
 Sergay
-Puedo
-Mascota y mosca
 Calsonsillos calientes
 Bankoiomat
-Libro y nigga
 Masajista y magazin
-Uvas y у вас
  Traje
  Ebanisteria
 Pereputal
 Залупа
 Semen y simon
-Galina hace guevos
+Galina hace huevos
