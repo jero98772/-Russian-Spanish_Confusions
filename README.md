@@ -24,19 +24,26 @@ El libro contiene ejemplos que pueden incluir:
 
 ### 📌 Разделы книги | Secciones del libro  
 
-1️⃣ Для русскоязычных, говорящих по-испански
-2️⃣ Для испаноязычных, говорящих по-русски
-3️⃣ Другие ситуации
+1️. Для русскоязычных, говорящих по-испански
 
-1️⃣ Para ruso hablantes hablando español
-2️⃣ Para hispanohablantes hablando ruso
-3️⃣ Otras situaciones
+2️. Для испаноязычных, говорящих по-русски
 
-**Если у вас есть предложения или истории, свяжитесь с нами!  
-📩 ¡Si tienes sugerencias o anécdotas, contáctanos!**  
+3️. Другие ситуации
 
-**Не забудьте поддержать, поставив ⭐ звезду репозиторию!
-No olvides apoyar dandole una star ⭐ al reposito**
+1️. Para ruso hablantes hablando español
+
+2️. Para hispanohablantes hablando ruso
+
+3️. Otras situaciones
+
+
+**Если у вас есть предложения или истории, свяжитесь с нами!**
+
+**¡Si tienes sugerencias o anécdotas, contáctanos!**  
+
+**Не забудьте поддержать, поставив ⭐ звезду репозиторию!**
+
+**No olvides apoyar dandole una star ⭐ al reposito**
 
 ---
 
@@ -60,19 +67,25 @@ las imagenes seran de la palabra en español
 
 
 _Father_
+
 _отец_
+
 _Papa_
 
 ![](https://ganar-ganar.mx/wp-content/uploads/2022/05/datos-de-la-papa.jpg)
 
 _potato_
+
 _картошка_
+
 _Papa_
 
 ![pope](https://www.americamagazine.org/sites/default/files/main_image/2023/10/18/20231018T0745-POPE-AUDIENCE-ZEAL-FOUCAULD-1767294.JPG.JPG)
 
 _Pope_
+
 _Римский_
+
 _Papa_
 
 ![](https://latinflavors.wordpress.com/wp-content/uploads/2012/11/ajiaco-bogotano-ns0.jpg)
