@@ -123,7 +123,11 @@ Si vas a un restaurante y  te dicen que hay papa ahi,  no te vas a comer a tu pa
 
 Эта еда называется "ojuela", и на испанском это не ругательство.
 
+Когда я был в Санкт-Петербурге в кафе, я увидел обычное для Латинской Америки блюдо, называемое "ojuela". Я попросил у человека в кафе дать мне одну "ojuela", и он ответил мне оскорблениями.
+
 Esta comida se llama ojuela, y en español no es una groseria, En ruso se confunde facilmente con una groserial
+
+cuando estaba en san petersburgo en una cafeteria vi una comida comun en latinoamerica llamada ojuela, le pedi a la persona del cafe que me diera una ojuela y me respondio con insultos 
 
 ---
 <br>
@@ -143,7 +147,7 @@ Esta comida se llama ojuela, y en español no es una groseria, En ruso se confun
 
 ## Uvas
 
-![](https://s.libertaddigital.com/2016/03/15/1920/1080/fit/Sima-de-los-Huesos-7.jpg)
+![](https://frutasyverduras.info/wp-content/uploads/2018/07/uvas.jpg)
 
 **Uvas** — это фрукт на испанском языке, который произносится так, как вы.
 
@@ -183,6 +187,25 @@ Usted como lector de ruso podra confundir mascotas con moscatas facilmente , mos
 
 ---
 
+<br>
+<br>
+
+## Traje
+
+
+![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fstatic.vecteezy.com%2Fsystem%2Fresources%2Fpreviews%2F018%2F246%2F164%2Fnon_2x%2Fhalf-length-suit-in-black-color-free-png.png&f=1&nofb=1&ipt=ce99871293e2335b92c41013c5ff5d970e93c34f5962f75238550dd582b4af4f&ipo=images)
+
+**"Traje"** — это одежда, обычно состоящая из брюк, пиджака и иногда жилета, предназначенная для формальных мероприятий или работы.
+
+на испанском не означает "трахать". "Трахать" на русском означает culiar.
+
+**"Traje"** es una prenda de vestir, generalmente compuesta por un pantalón, una chaqueta y a veces un chaleco, que se usa para ocasiones formales o de negocio.
+
+en español no quiere decir **"трахать"**, **"трахать"** en ruso quiere decir **culiar**
+
+
+---
+
 ## Для испаноязычных, говорящих по-русскиs
 
 ## Para hispanohablantes hablando ruso
@@ -214,7 +237,7 @@ Cuando hable en ruso asegurese de no confundir "ы" y "и" puede cambiar el sign
 <br>
 <br>
 
-## Книга y нига
+## Книга и нига
 
 ## Libro y nigga
 
@@ -224,8 +247,53 @@ Cuando hable en ruso asegurese de no confundir "ы" y "и" puede cambiar el sign
 
 Son 2 cosas diferentes, pero cuando pregunte donde esta el libro no pregunte por el nigga
 
-Mi nieto
-Su bota
+---
+
+<br>
+<br>
+
+## Суббота и Его/Её ботинок
+
+## Sabado y su bota
+
+На испанском "su bota" не означает "суббота" (Суббота), это значит "его/её ботинок".
+
+en español su bota no significa sabado(Суббота), siginifca Его/Её ботинок
+
+---
+
+<br>
+<br>
+
+## минет
+
+## Mi nieto
+
+
+У меня есть дедушка и бабушка, которые прекрасно говорят по-русски, и спустя 22 года я понял, почему они не называли меня "Мой внук". Я думал, что они мной не гордятся, но потом понял, что **"Мой внук"** звучит как **"минет"** на русском.
+
+
+Tengo 2 abuelos que hablan ruso perfecto y despues de 22 años entendi por que no se referian a mi como "Mi nieto", pense que no estaban orgullosos de mi, luego entendi que **"Mi nieto"** suena como **mamada** en ruso
+
+---
+
+<br>
+<br>
+
+## Залупа
+
+## Lupa
+
+На испанском у нас нет слова "залупа", у нас есть слово "лупа", которое означает увеличительное стекло.
+
+"Залупа" на русском — это глупость, а "лупа" на испанском — это линза.
+
+en español no tenemos una palabra como zalupa, tenemos una que es sencillamente lupa,
+
+zalupa en ruso es estupides y lupa en español es un lente
+
+
+## To do
 Sasisque y sisque
 Automat y aftoyomat
 Bliat y vlad
@@ -235,9 +303,7 @@ Sergay
 Calsonsillos calientes
 Bankoiomat
 Masajista y magazin
- Traje
- Ebanisteria
+Ebanisteria
 Pereputal
-Залупа
 Semen y simon
 Galina hace huevos
