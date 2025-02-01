@@ -203,6 +203,35 @@ Usted como lector de ruso podra confundir mascotas con moscatas facilmente , mos
 
 en español no quiere decir **"трахать"**, **"трахать"** en ruso quiere decir **culiar**
 
+---
+
+<br>
+<br>
+
+## Curva
+
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQTR8tl4X7kniS0InLEHhxwc5RdCF-UXLdivA&s)
+
+**курва**(испанскn) — это линия или поверхность, отклоняющаяся от прямого пути, образуя наклон или дугу. Также может обозначать поворот на дороге или математический график.
+
+**Curva** es una línea o superficie que se desvía de una trayectoria recta, formando una inclinación o arco. También puede referirse a un giro en una carretera o a una gráfica matemática.
+
+Известное слово как в польском, так и в русском "**курва**" означает (проститутка или сука).
+
+la bien coinocida palabra tanto en polaco y en ruso курва significa (prostituta o perra ) 
+
+---
+
+<br>
+<br>
+
+## Ebarista
+
+![](https://live.staticflickr.com/6150/5917565635_cb4de86b8c_c.jpg)
+
+**Ebarista** на испанском означает хорошего человека, который подает тебе кофе, а на русском это означает мать".
+
+**Ebarista** es una buena persona que te sirve cafe en español , en ruso se refiere a cabron
 
 ---
 
@@ -256,6 +285,8 @@ Son 2 cosas diferentes, pero cuando pregunte donde esta el libro no pregunte por
 
 ## Sabado y su bota
 
+![](https://studiofco.vteximg.com.br/arquivos/ids/1515044-4000-4284/-stfco-producto-Botas-BEIGE-S084936-1.jpg?v=638300417195600000)
+
 На испанском "su bota" не означает "суббота" (Суббота), это значит "его/её ботинок".
 
 en español su bota no significa sabado(Суббота), siginifca Его/Её ботинок
@@ -268,6 +299,8 @@ en español su bota no significa sabado(Суббота), siginifca Его/Её �
 ## минет
 
 ## Mi nieto
+
+![](https://img.freepik.com/vector-premium/nieto-caminando-su-abuelo_38747-531.jpg)
 
 
 У меня есть дедушка и бабушка, которые прекрасно говорят по-русски, и спустя 22 года я понял, почему они не называли меня "Мой внук". Я думал, что они мной не гордятся, но потом понял, что **"Мой внук"** звучит как **"минет"** на русском.
@@ -284,6 +317,8 @@ Tengo 2 abuelos que hablan ruso perfecto y despues de 22 años entendi por que n
 
 ## Lupa
 
+![](https://definicion.de/wp-content/uploads/2018/11/lupa-1.jpg)
+
 На испанском у нас нет слова "залупа", у нас есть слово "лупа", которое означает увеличительное стекло.
 
 "Залупа" на русском — это глупость, а "лупа" на испанском — это линза.
@@ -292,18 +327,155 @@ en español no tenemos una palabra como zalupa, tenemos una que es sencillamente
 
 zalupa en ruso es estupides y lupa en español es un lente
 
+---
+
+<br>
+<br>
+
+## Чувак (Chuvaca)
+
+![](https://static.wikia.nocookie.net/esstarwars/images/5/51/Chewbacca_TLJ.PNG/revision/latest/thumbnail/width/360/height/360?cb=20190419143715)
+
+В русском это используется для обращения к людям, как в испанском (Испания) "tío" или "tronco".
+
+Когда читаешь это по-испански, звучит как имя персонажа из "Star wars". Представь, что говоришь нескольким людям в течение дня "чувак" и вспоминаешь про Чубакку...
+
+En ruso se usa para referirse a las personas como en español de españa "tio" o "tronco"
+
+cuano lo lees en español suena como al personaje de star wars, piensa en decirle a varias personas en tu dia a dia chuvac y acordartede chuvaca...
+
+---
+
+<br>
+<br>
+
+## Pereputal
+## Перепутал
+
+Когда мы слышим это слово на испанском, первое, что мы слышим, — это **"puta"**. Однако ты **ошибаешься**.  На русском **"перепутал"** означает **"ошибся"** или **"перепутал"**, а **"puta"** на испанском — это **"сука"**.
+
+cuando escuchamos esta palabra en español  lo primero que esuchamos es **puta**, sin envargo estas **confundido** , en ruso **Pereputal** significa **confundido** y **puta** en español es **сука** 
+
+---
+
+<br>
+<br>
+
+## имена
+
+## Nombres
+---
+
+<br>
+<br>
+
+## Galina
+
+![](https://lohmann-breeders.com/media/2020/07/tradition.png)
+
+Имя Галина легко ассоциируется с животным gallina (курица) на испанском.
+
+el nombre **galina** se puede asociar muy facil con el animal **gallina** en español
+
+---
+
+<br>
+<br>
+
+## Hernan
+
+Лучше не ехать в Россию с именем Hernán, так как его можно перепутать с "херно", а это означает что-то похожее на дерьмо.
+
+es mejor no ir a rusia con el nombre **hernan** , se puede confundir con **хернo**, esto significa algo parecido a mierda
+
+---
+
+<br>
+<br>
+
+## Семён
+
+Есть люди, которые пишут это как **Semen(Сперма)** в интернете... Лучше пиши **Simon**.
+
+hay personas que lo escriben como **Semen(Сперма)** en internet... mejor esribe Simon
+
+---
+
+<br>
+<br>
+
+## Сергеу
+
+Cuando pronuncias este nombre en español suena a la accion **"ser gay"**
+
+Когда произносишь это имя на испанском, оно звучит как действие **"быть геем"**.
+
+---
+
+<br>
+<br>
+
+## Другие ситуации
+
+## Otras situaciones
+
+
+---
+
+<br>
+<br>
+
+## Vlad
+
+История о моей подруге с необычным акцентом, у которой был **враг** по имени Влад. Он был её одногруппником в университете.  
+
+Она к нему испытывала симпатию, но не могла правильно произнести его имя. Вместо **"Влад"** она говорила **"блядь"**...  
+
+Их дружба не продлилась и двух недель. Она всегда говорила мне, что он с ней плохо обращался.
+
+una historia de una amiga con asento raro que tenia un **enemigo** LLamado vlad, era su compañero en una materia de la univeridad.
+
+ella le gustaba y no era capaz de pronucniar su nombre , no podia decir **Влад**  en su lugar ella decia **блядь** ... 
+
+no duro 2 semanas la amistad siempre me decia que el la trataba mal.
+
+---
+
+<br>
+<br>
+
+## Huevos de gallina
+## хуево галина
+
+Я рассказывал другу, что познакомился с человеком по имени Галина, и что это звучит как "gallina" (курица).
+Он спросил меня, несёт ли она huevos (хуёво), ведь gallinas (галинас) несут huevos (хуёво), и я не знаю, правильно ли это...
+
+le estaba contando aun amigo que conoci una persona que se llama galina, y que suena a gallina, el me pregunto que si ella pone **huevos(хуёво)** las **gallinas(галинас)** ponen **huevos(хуёво)** y no se si sea correcto   
+
+---
+
+<br>
+<br>
+
+
+## Desayuno
+
+me preguntaron que desayune, respondi salchichas alemanas con huevos , queria saber como se decia en en ruso y me dijeron **немецкий сосиски(salchicha alemana)** , y yo pronuncie **немецкие сиськи(tetas alemanas)**... 
+
+
+Мне спросили, что я завтракал, я ответил, что немецкие сосиски с яйцами. Хотел узнать, как это будет на русском, и мне сказали **немецкий сосиски (salchicha alemana)**. Я же произнес **немецкие сиськи (tetas alemanas)**...
+
+
+## cajero
+
+estaba preguntando donde habia un cajero
 
 ## To do
-Sasisque y sisque
+
+
 Automat y aftoyomat
-Bliat y vlad
-Galina y gallin
 Barbara y varvara
-Sergay
 Calsonsillos calientes
 Bankoiomat
 Masajista y magazin
-Ebanisteria
-Pereputal
-Semen y simon
-Galina hace huevos
+
