@@ -406,9 +406,9 @@ hay personas que lo escriben como **Semen(Сперма)** en internet... mejor e
 
 ## Сергеу
 
-Cuando pronuncias este nombre en español suena a la accion **"ser gay"**
+Cuando pronuncias este nombre en español suena a la accion de **"ser gay"**, en español el nombre **sergey** se traduce como **sergio**
 
-Когда произносишь это имя на испанском, оно звучит как действие **"быть геем"**.
+Когда произносишь это имя на испанском, оно звучит как действие **"быть геем"**, На испанский имя **Сергей** переводится как **Серхио(Sergio)**..
 
 ---
 
@@ -465,8 +465,14 @@ me preguntaron que desayune, respondi salchichas alemanas con huevos , queria sa
 
 Мне спросили, что я завтракал, я ответил, что немецкие сосиски с яйцами. Хотел узнать, как это будет на русском, и мне сказали **немецкий сосиски (salchicha alemana)**. Я же произнес **немецкие сиськи (tetas alemanas)**...
 
+---
+
+<br>
+<br>
 
 ## cajero
+
+![](https://www.bbva.com/wp-content/uploads/2016/03/2016-02-23_CAJERO-BBVA_04-e1476955920719-1920x1233.jpg)
 
 estaba preguntando donde habia un **cajero(банкомат)**, y no pronuncie correctamente y dije donde esta **"где банк еб мат?"** el traductor dice que significa en español
 
@@ -476,12 +482,81 @@ estaba preguntando donde habia un **cajero(банкомат)**, y no pronuncie c
 
 **¿Dónde está el puto banco?**
 
-## To do
+
+---
+
+<br>
+<br>
+
+## Mi carro es Automatico
+
+![](https://fotos.jornaldocarro.estadao.com.br/uploads/2017/10/26144528/Fiat-Argo-SUV_F.jpg)
+
+Я давал уроки вождения русскому человеку, хотел сказать ему, что **моя машина автомат**, я произнес **моя машина еб твою мать**, я имел в виду "**моя машина автомат**"
+
+Estaba dictando clases de conduccion a una persona rusa, le quieria decir que mi carro es automatico pronuncie **моя машина  еб твою  мать**, quise decir "**моя машина автомат**"
 
 
-Automat y aftoyomat
-Barbara y varvara
-Calsonsillos calientes
+---
 
-Masajista y magazin
+<br>
+<br>
+
+## Barbara y Varvara
+
+В испанском языке есть 2 буквы **b и v**, которые произносятся одинаково, мне было очень сложно отличить **v от b**, дочь моего друга звали **варвара**, а не  **Барбара**
+
+en español existen 2 letras **b y v** que se pronuncian igual, para mi era muy dificil diferenciar entre la **v y b**, la hija de mi amiga se llamaba **Varvara** y no **barbara**
+
+---
+
+<br>
+<br>
+
+## Pastas con mariscos o maricas
+
+![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fwww.cocinacaserayfacil.net%2Fwp-content%2Fuploads%2F2023%2F03%2FPasta-alfredo-con-camarones.jpg&f=1&nofb=1&ipt=52965ab47287f52f87160d1fdeb868885dd3b11672eb0f48f58154f33546b71b&ipo=images)
+
+Подруга зашла в ресторан и я хочу заказать **"пасты с морепродуктами"**, когда пришел официант, она заказала **"пасты с огурцами"**, официант был серьезен
+
+una amiga fue a un restaurante y quiero pedir **"pastas con mariscos"**, cuando llego el mesero, ella pidio **"pastas con maricas"** , el mesero serio
+
+---
+
+<br>
+<br>
+
+## Tienda y masajes
+
+Я не знаю, почему люди поняли, что я хочу пойти на массаж(masaje) и не поняли, что я хочу пойти в магазин(Tienda)
+
+no se porque la gente me entiende que queria ir al masaje(массаж) y no me entendia que queria ir a la tienda(магазин)
+
+---
+
+<br>
+<br>
+
+## Pantalones calientes
+
+Я был в Санкт-Петербурге и замерзли ноги. Я искал в интернете, где продают тёплые штаны, нашёл магазин, но когда приехал, оказалось, что это эротический магазин... Оказалось, что они называются термобрюки, а не эротические.
+
+Estaba en sanit peters burgo y tenia frio en mis piernas, busque en internet donde venden pantalones calientes, me encontre que los venden una tienda lejana y cuando llege era una **tienda erotica**... resulta que se llaman **pantalones termicos** y no **eroticos**
+
+---
+
+<br>
+<br>
+
+## Благодарности
+## Agradecimientos
+
+Я очень благодарен своим друзьям — русским, украинцам и белорусам — за опыт, который мы пережили вместе.
+
+А также друзьям, которых я встретил онлайн и которые поделились со мной своими знаниями.
+
+estoy muy agradecido con mis amigos, rusos, ukranianos y bielorusos por las experiencias que hemos vivido
+
+los amigos que hecho online que me han compartido su conocimineto
+
 
