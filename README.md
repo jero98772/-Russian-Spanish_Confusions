@@ -468,7 +468,13 @@ me preguntaron que desayune, respondi salchichas alemanas con huevos , queria sa
 
 ## cajero
 
-estaba preguntando donde habia un cajero
+estaba preguntando donde habia un **cajero(банкомат)**, y no pronuncie correctamente y dije donde esta **"где банк еб мат?"** el traductor dice que significa en español
+
+**¿Dónde está el puto banco?**
+
+Я спрашивал, где находится  **банкомат(cajero)**, но не произнес правильно и сказал: **"где банк еб мат?"**. Переводчик говорит, что это означает на испанском: 
+
+**¿Dónde está el puto banco?**
 
 ## To do
 
@@ -476,6 +482,6 @@ estaba preguntando donde habia un cajero
 Automat y aftoyomat
 Barbara y varvara
 Calsonsillos calientes
-Bankoiomat
+
 Masajista y magazin
 
